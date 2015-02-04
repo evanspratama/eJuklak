@@ -3,4 +3,5 @@ eJuklak
 
 Juklak FTIS Unpar Versi Elektronik
 
-jhdasdasdasdasdas
++Hi roy
++Hi Hi Hi
